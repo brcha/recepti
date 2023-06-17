@@ -69,5 +69,4 @@
 * [Pizza Dough Calculator With Poolish: A Complete Pizza Calculator](https://www.myhouseofpizza.com/pizza-dough-calculator-with-poolish/)
 * [Pizza Dough Hydration Explained – the Best Hydration Level for Pizza](https://thepizzaheaven.com/pizza-dough-hydration/)
 * [How to Use a Pizza Stone for the First Time: An Easy Step by Step Guide](https://thepizzaheaven.com/how-to-use-a-pizza-stone-for-the-first-time/)
-* [Pizza Dough Hydration Explained – the Best Hydration Level for Pizza](https://thepizzaheaven.com/pizza-dough-hydration/)
 * [The Perfect Way to Stretch a Neapolitan Pizza⏐Before & After](https://youtu.be/4xa_iItp8GA)
