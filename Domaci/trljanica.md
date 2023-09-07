@@ -25,4 +25,4 @@
 
 * [Otkrite Tajnu JUŽNJAČE TRLJANICE❗Zašto je svi obožavaju❓Neznam ni ja❗Pripremite i PROVERITE SAMI👌😋❗](https://youtu.be/oWBimVDn2L8)
 
-[_metadata_:keywords]:- [vegetariansko, paprika, sir]
+[_metadata_:keywords]:- [vegetarijansko, paprika, sir]
