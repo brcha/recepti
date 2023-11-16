@@ -6,7 +6,7 @@
 * Црни лук, ситно сецкан, 4 комада
 * Шаргарепа, рендана, 3 комада
 * Шитаке печурке, 200 g
-* Пиринач, 300 g
+* Пиринач, 400 g
 * Орах, млевени или ситно сецкани, 1 kg
 * Кисели купус, 2 главице
 * Бруснице, мало
@@ -30,4 +30,4 @@
 * [POSNA SARMA SA KISELIM KUPUSOM / UBEDLJIVO NAJBOLJA POSNA SARMA - Uvek Ukusno](https://youtu.be/l1SfizLUpjU)
 * [LETINA KUHINJA - POSNE SARME - BRZO I LAKO](https://youtu.be/MhgRIIwBcPE)
 
-[_metadata_:keywords]:- [posno, vegetarijanski, veganski]
+[_metadata_:keywords]:- [posno, vegetarijanski, veganski, bezglutenski]
